@@ -1,4 +1,4 @@
 # Meeting
 # Assembly
 
-<img src="https://github.com/739b0eaa-3e6f-4075-bd23-109105e0107b">
+<img src="dc08c2d3d5f01790162ea669f893cc25.gif">
